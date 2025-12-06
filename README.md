@@ -1,2 +1,1 @@
-# Smart-aviator-predictor-
-Welcome 
+Anonymous 👿👿 Bann cheker
